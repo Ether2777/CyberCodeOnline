@@ -1,0 +1,1 @@
+A small golden coin with the faded emblem of an old gang. Usually found in the boss rooms of dungeons these trinkets are regarded as valuable to many people. Usable at the weapon smith to get some special rewards for your troubles.
